@@ -1,3 +1,3 @@
 - 👋 Hi, I’m Pallak!
 - 👩‍💻 I’m currently working in Goldman Sachs, Bengaluru as a Technical Analyst.
-- 👩‍🎓 I have graduated from Indian Institute of Information Technology, Allahabad
+- 👩‍🎓 B.Tech in Information Technology from Indian Institute of Information Technology, Allahabad
